@@ -28,4 +28,4 @@ Atualmente, estou em transição para **Desenvolvimento de Software**, aplicando
 💡 **Estou em busca de desafios como Desenvolvedor Backend**, onde possa contribuir para soluções inovadoras e atuar em projetos que agreguem valor através da tecnologia e automação.  
 
 📫 **Conecte-se comigo!**  
-🔗 [Linkedin](https://www.linkedin.com/in/okvictorhugo/) | 📧 [E-mail](contatovictorhugosoares@gmail.com) | 📧 [Telefone](11985883260)  
+🔗 [Linkedin](https://www.linkedin.com/in/okvictorhugo/) | 📧 [E-mail](contatovictorhugosoares@gmail.com) | 📱 [Telefone](https://wa.me/+5511964628356)  
